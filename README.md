@@ -1,1 +1,0 @@
-# gitdinex1
